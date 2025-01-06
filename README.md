@@ -1,2 +1,2 @@
 # badge-stuff-AGIAN
-Skibidi rizzler
+free badge lolololololololololol
